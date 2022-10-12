@@ -1,4 +1,4 @@
-<img src="https://res.cloudinary.com/maurodavid/image/upload/v1665553791/Redes%20personales/Sin_t%C3%ADtulo-1_txh4tp.png"/>
+<img src="https://res.cloudinary.com/maurodavid/image/upload/v1665554699/Redes%20personales/Sin_t%C3%ADtulo-1_rtmwbi.png"/>
 
 > Me quedé en la edad de los "¿Por qué...?" y espero nunca dejarla
 
