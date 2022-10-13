@@ -6,9 +6,9 @@
 
 ## Mis fuertes son: 
 
-* ### Trabajo en equipo
-* ### Adaptabilidad ante los problemas
-* ### Pensamiento analítico.
+* ### Trabajo en equipo ✨
+* ### Adaptabilidad ante los problemas 🤺
+* ### Pensamiento analítico 🧐
 
 ## Estoy abierto a distintas oportunidades que se presenten en mi camino. Esperando por nuevos desafios que me hagan crecer tanto como profesional como persona. 💪🏻💪🏻
 
