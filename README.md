@@ -2,7 +2,13 @@
 
 ### ***Me quedé en la edad de los "¿Porqué...?" y espero nunca dejarla*** 🚀🚀
 
-## Siempre me destaqué por mi creatividad e imaginación. Valoro muchisimo el pensamiento del otro y pongo el respeto a los demás por sobre todas las cosas. Mis fuertes son el trabajo en equipo, la adaptabilidad ante los problemas y el pensamiento analítico.
+## Siempre me destaqué por mi creatividad e imaginación. <br> Valoro muchisimo el pensamiento del otro y pongo el respeto a los demás por sobre todas las cosas.
+
+## Mis fuertes son: 
+
+* Trabajo en equipo
+* Adaptabilidad ante los problemas
+* Pensamiento analítico.
 
 ## Estoy abierto a distintas oportunidades que se presenten en mi camino. Esperando por nuevos desafios que me hagan crecer tanto como profesional como persona. 💪🏻💪🏻
 
