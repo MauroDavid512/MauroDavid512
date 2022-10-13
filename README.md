@@ -4,12 +4,12 @@
 
 ## Siempre me destaqué por mi creatividad e imaginación. Valoro muchisimo el pensamiento del otro y pongo el respeto a los demás por sobre todas las cosas. Mis fuertes son el trabajo en equipo, la adaptabilidad ante los problemas y el pensamiento analítico.
 
-##Estoy abierto a distintas oportunidades que se presenten en mi camino. Esperando por nuevos desafios que me hagan crecer tanto como profesional como persona. 💪🏻💪🏻
+## Estoy abierto a distintas oportunidades que se presenten en mi camino. Esperando por nuevos desafios que me hagan crecer tanto como profesional como persona. 💪🏻💪🏻
 
 
-###Te invito a contactarme:
+### Te invito a contactarme:
 
-###- Correo electrónico: mauroalos@hotmail.com
-###- Perfil de LinkedIn: [Mauro David](https://www.linkedin.com/in/mauro-david-89432b193/)
+### - Correo electrónico: mauroalos@hotmail.com
+### - Perfil de LinkedIn: [Mauro David](https://www.linkedin.com/in/mauro-david-89432b193/)
 
 
