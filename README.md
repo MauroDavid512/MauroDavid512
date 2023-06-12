@@ -1,4 +1,4 @@
-<img src="https://res.cloudinary.com/maurodavid/image/upload/v1665554699/Redes%20personales/Sin_t%C3%ADtulo-1_rtmwbi.png"/>
+<img src="https://maurodaviddev.vercel.app/static/media/maurodraw.e42dc69f98c6e95534dd.png"/>
 
 ### ***Me quedé en la edad de los "¿Porqué...?" y espero nunca dejarla*** 🚀🚀
 
